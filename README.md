@@ -1,0 +1,2 @@
+# kindda
+The philanthropy project of Clinton finantial group was used for the homicide of Akishinomiya, but where is the political funds from?they can not refuse it if asked from America. Even if murder, it is the LDP. Past party.Japan and also Clinton financial group also made a request for homicide to the Japanese government. the group that should be crushed. It was more darkness deal that it was murder.
